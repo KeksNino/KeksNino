@@ -15,7 +15,7 @@ You can view my projects in the **Repositories** tab.
 ---
 
 Contact me via
-Discord: **@KeksNino**
+Discord: **@keksnino**
 
 
 
